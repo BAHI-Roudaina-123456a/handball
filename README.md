@@ -1,2 +1,7 @@
 # handball
-## << Il n'a ya pas de meilleur maitre d'apprentissage que la passion >> Claude Onesta
+Il n'a ya pas de meilleur maitre d'apprentissage que la passion >> Claude Onesta
+# Histoire 
+![handball-1922](
+https://roudaina.fandom.com/fr/wiki/Fichier:Image.png)
+Le handball est d'origine allemande, inventé dans les années 1900 et est devenu un sport olympique masculin a Munich en 1972. Durant les premières années de sa création, le handball se pratiquer en extérieur sur un terrain de football en 11 contre 11. Dans les années 1960, le handball à onze est progressivement abandonné au profit du handball à sept joueurs et le dernier championnat du monde à 11 a lieu en 1966. Si certaines compétitions ou matchs continuent à être joués en extérieur, le handball investit peu à peu les gymnases. Le handball est admis au programme olympique masculin en 1972 et les femmes entrent en 1976. Le handball est longtemps considéré comme un sport de complément, pratiqué l'hiver au chaud dans les gymnases. Puis, rapidement, on assiste à une véritable progression du handball jusqu'au niveau actuel, notamment grâce aux substrats actifs du milieu scolaire. Le handball doit donc beaucoup aux milieux scolaire et universitaire et tient aujourd'hui encore une place importante dans les programmes de l'Éducation nationale en France. Ce jour là, le handball est devenu un sport très important en Europe et plus de 140 pays sont membres reconnus de l'IHF (Fédération Internationale de Handball.
+
